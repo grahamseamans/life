@@ -1,73 +1,83 @@
-# Shinto OS – Daily Execution Cheatsheet (Temple & Folk Shinto)
+# Japanese OS – Daily Execution Cheatsheet
 
-## **1. PHYSICAL DISCIPLINE (Purity & Reverence)**  
-✅ **Start the Day with Purification – Cleanse yourself physically and mentally.**  
-📖 *“Misogi: To stand before the kami, one must first be pure.”* (*Shinto Teachings*)  
+## **1. MASTER YOUR CRAFT (Shokunin Spirit – 職人精神)**  
+✅ **Commit to Lifelong Mastery – Improve daily, no shortcuts.**  
+📖 *“The essence of shokunin is devotion to craft, not just skill but heart.”* (*Toshio Odate*)  
 
-✅ **Maintain a Clean and Orderly Environment – Purity extends beyond the self.**  
-📖 *“A pure place invites the kami; a neglected space repels them.”* (*Shinto Tradition*)  
+✅ **Kaizen (改善) – Continuous improvement, no matter how small.**  
+📖 *“Success is the sum of small efforts repeated daily.”* (*Japanese Business Philosophy*)  
 
-✅ **Offer Food and Drink with Gratitude – Honor life’s blessings.**  
-📖 *“To eat is to receive a gift from the world; be thankful.”* (*Ritual Offerings to Kami*)  
+✅ **Do One Thing Well – Specialization over generalization.**  
+📖 *“A craftsman does not chase two rabbits.”* (*Japanese Proverb*)  
 
-✅ **Walk with Reverence – Every place is sacred if you treat it as such.**  
-📖 *“The world is full of kami; show respect to all things.”* (*Kojiki*)  
+✅ **Respect the Tools of Your Trade – They are an extension of yourself.**  
+📖 *“The sword is the soul of the samurai.”* (*Japanese Warrior Code*)  
 
-✅ **Visit a Shrine Regularly – Make time to reconnect with the divine.**  
-📖 *“The shrine is where heaven and earth meet; step forward with sincerity.”* (*Shinto Practices*)  
-
-✅ **Honor Local Kami – Recognize spirits in your immediate surroundings.**  
-📖 *“Every village, every forest, and every home has its kami.”* (*Folk Shinto Beliefs*)  
+✅ **Slow is Smooth, Smooth is Fast – Precision over haste.**  
+📖 *“A thousand days of training to forge, ten thousand days of training to refine.”* (*Miyamoto Musashi*)  
 
 ---
 
-## **2. MENTAL DISCIPLINE (Harmony & Gratitude)**  
-✅ **Cultivate Inner Harmony – Live with sincerity and balance.**  
-📖 *“Makoto (真): A pure heart aligns with the natural order.”* (*Shinto Ethics*)  
+## **2. DISCIPLINE & RITUAL (Kodawari – こだわり)**  
+✅ **Pursue Perfection in Small Details – Excellence comes from focus.**  
+📖 *“The gods dwell in the details.”* (*Japanese Aesthetic Philosophy*)  
 
-✅ **Express Gratitude Daily – Acknowledge the unseen blessings.**  
-📖 *“To give thanks is to recognize the web of life that sustains us.”* (*Norito Prayers*)  
+✅ **Develop Routines and Rituals – Structure leads to clarity.**  
+📖 *“If you want to control your future, start with your habits.”* (*Japanese Work Ethic*)  
 
-✅ **Engage in Rituals with Mindfulness – Ceremony is a path to connection.**  
-📖 *“Rituals link us to the past, present, and the kami.”* (*Shinto Worship Guide*)  
+✅ **Zanshin (残心) – Maintain awareness and mindfulness.**  
+📖 *“Even after striking, remain in the moment.”* (*Kyudo – Japanese Archery*)  
 
-✅ **Respect Nature – The land and all living things are sacred.**  
-📖 *“The mountain, the river, the tree—all have kami within.”* (*Shinto Cosmology*)  
+✅ **Mottainai (勿体ない) – Waste nothing, use everything fully.**  
+📖 *“Things should not be discarded before they have served their true purpose.”* (*Japanese Frugality*)  
 
-✅ **Avoid Negativity and Impurity – Keep thoughts and words clean.**  
-📖 *“Kegare: Impurity clouds the soul; cleanse it through right action.”* (*Shinto Purification Teachings*)  
-
-✅ **Recognize Omens and Signs – The world communicates through subtle hints.**  
-📖 *“A bird’s flight, the rustle of leaves—kami speaks through nature.”* (*Folk Shinto Traditions*)  
+✅ **Clean and Organize (Osoji – 大掃除) – A clear space creates a clear mind.**  
+📖 *“Tidiness is a form of respect.”* (*Zen Buddhism*)  
 
 ---
 
-## **3. OUTPUT DISCIPLINE (Action & Contribution)**  
-✅ **Perform Your Duties with Devotion – Work is an offering to the world.**  
-📖 *“To act with sincerity is to live in alignment with the kami.”* (*Shinto Ethics*)  
+## **3. SOCIAL HARMONY & BALANCE (Wa – 和)**  
+✅ **Read the Air (Kuuki wo Yomu – 空気を読む) – Social awareness is key.**  
+📖 *“Understanding without words is the highest skill.”* (*Japanese Communication*)  
 
-✅ **Contribute to Community – Serve with humility and care.**  
-📖 *“The well-being of the village ensures the well-being of the self.”* (*Shinto Village Traditions*)  
+✅ **Giri (義理) – Duty and obligation to others.**  
+📖 *“One must give as one has received.”* (*Japanese Social Code*)  
 
-✅ **Honor Your Ancestors – Keep their spirit alive through remembrance.**  
-📖 *“The past lives in us; acknowledge those who came before.”* (*Rites for Ancestors*)  
+✅ **Enryo (遠慮) – Practice restraint and humility.**  
+📖 *“A person’s character is revealed in what they do not say.”* (*Japanese Manners*)  
 
-✅ **Engage in Seasonal Festivals – Align with the rhythms of nature.**  
-📖 *“Matsuri: Celebrations honor the cycles of life and kami’s presence.”* (*Shinto Seasonal Practices*)  
+✅ **Omoiyari (思いやり) – Consideration for others without being asked.**  
+📖 *“True kindness is anticipating another’s needs.”* (*Japanese Courtesy*)  
 
-✅ **Accept Life’s Transience – Flow with change rather than resist it.**  
-📖 *“Mono no aware: The beauty of life is in its impermanence.”* (*Shinto Aesthetic Philosophy*)  
+✅ **Gaman (我慢) – Endurance in hardship, do not complain.**  
+📖 *“A bamboo bends but does not break.”* (*Japanese Resilience*)  
 
-✅ **Practice Household Rituals – Small daily acts reinforce spiritual connection.**  
-📖 *“Lighting incense, offering sake, or placing fresh water pleases the kami.”* (*Folk Shinto Domestic Practices*)  
+---
+
+## **4. EMBRACING NATURE & IMPERMANENCE (Mono no Aware – 物の哀れ)**  
+✅ **Accept Impermanence – Nothing lasts forever, cherish the present.**  
+📖 *“Even cherry blossoms must fall.”* (*Japanese Aesthetic Philosophy*)  
+
+✅ **Shibumi (渋み) – Quiet elegance, power in simplicity.**  
+📖 *“True refinement is understated.”* (*Zen Aesthetics*)  
+
+✅ **Wabi-Sabi (侘寂) – Beauty in imperfection.**  
+📖 *“A cracked tea cup is no less valuable.”* (*Japanese Design Philosophy*)  
+
+✅ **Live with Nature, Not Against It – Move in harmony with the seasons.**  
+📖 *“The sound of the wind and the flow of water bring peace.”* (*Shinto Philosophy*)  
+
+✅ **Accept Change Without Resistance – Flow like water.**  
+📖 *“When the old is gone, the new can emerge.”* (*Japanese Perspective on Life*)  
 
 ---
 
 ## **Final Summary**  
-**1️⃣ Purify yourself and your surroundings to invite harmony.**  
-**2️⃣ Live with sincerity, gratitude, and respect for nature.**  
-**3️⃣ Act with devotion, serve the community, and honor ancestors.**  
-**4️⃣ Recognize the sacred in everyday life—nature, home, and omens.**  
+**1️⃣ Dedicate yourself to mastery, with discipline and care.**  
+**2️⃣ Structure your life with rituals and mindfulness.**  
+**3️⃣ Maintain harmony with others through duty and awareness.**  
+**4️⃣ Accept impermanence and live with simplicity.**  
 
-🔥 **Run this OS, and life flows with natural order.**  
-🔥 **Ignore it, and you become disconnected from the world’s sacred rhythm.**
+🔥 **Run this OS, and life becomes precise, balanced, and meaningful.**  
+🔥 **Ignore it, and you drift without clarity or depth.**
+

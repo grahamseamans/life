@@ -1,64 +1,64 @@
-# Taoism OS – Daily Execution Cheatsheet
+# Bushido OS – Daily Execution Cheatsheet
 
-## **1. PHYSICAL DISCIPLINE (Align with Natural Flow)**  
-✅ **Wake Up Naturally – Rise with energy, not force.**  
-📖 *“Those who flow as life flows know they need no other force.”* (*Tao Te Ching, Chapter 8*)  
+## **1. PHYSICAL DISCIPLINE (Master the Body)**  
+✅ **Wake Up with Purpose – Start the day with resolve.**  
+📖 *“A warrior is worthless unless he rises above others and stands strong in the midst of a storm.”* (*Yamamoto Tsunetomo, Hagakure*)  
 
-✅ **Eat Simply and in Moderation – Balance is the way.**  
-📖 *“Fill your bowl to the brim and it will spill. Keep sharpening your knife and it will blunt.”* (*Tao Te Ching, Chapter 9*)  
+✅ **Train Daily – Strength, endurance, and discipline.**  
+📖 *“Do not rely on strength alone, for even the strongest warrior will one day grow weak.”* (*Miyamoto Musashi, The Book of Five Rings*)  
 
-✅ **Move with Purpose – Flow, stretch, walk, and breathe.**  
-📖 *“When you are content to be simply yourself and don’t compare or compete, everyone will respect you.”* (*Tao Te Ching, Chapter 8*)  
+✅ **Eat for Strength, Not Indulgence – Food is fuel.**  
+📖 *“Moderation in all things ensures the body remains ready for battle.”* (*Hagakure*)  
 
-✅ **Rest When Needed – Overwork leads to disharmony.**  
-📖 *“Nature does not hurry, yet everything is accomplished.”* (*Tao Te Ching, Chapter 47*)  
+✅ **Rest with Honor – Do not overindulge in sleep.**  
+📖 *“Even in sleep, the warrior is prepared.”* (*Bushido Code*)  
 
-✅ **Live in Harmony with Your Body – Listen to its needs.**  
-📖 *“Be like water, which benefits all and contends with none.”* (*Tao Te Ching, Chapter 8*)  
-
----
-
-## **2. MENTAL DISCIPLINE (Empty and Flow)**  
-✅ **Do Not Overthink – The mind is clear when still.**  
-📖 *“Stop thinking, and end your problems.”* (*Tao Te Ching, Chapter 20*)  
-
-✅ **Limit Attachments – Avoid clinging to things or ideas.**  
-📖 *“When I let go of what I am, I become what I might be.”* (*Tao Te Ching, Chapter 44*)  
-
-✅ **Spend Time in Silence – Insight comes when you are empty.**  
-📖 *“Do you have the patience to wait until your mud settles and the water is clear?”* (*Tao Te Ching, Chapter 15*)  
-
-✅ **Accept Change – Let go of resistance.**  
-📖 *“Life is a series of natural and spontaneous changes. Don’t resist them—that only creates sorrow.”* (*Tao Te Ching, Chapter 58*)  
-
-✅ **Trust the Process – Flow like the river, without forcing.**  
-📖 *“The best way to live is to be like water, always adapting yet always true to its nature.”* (*Tao Te Ching, Chapter 8*)  
+✅ **Harden Yourself – Accept discomfort as training.**  
+📖 *“Winter training builds a warrior’s resilience; endure hardship gladly.”* (*Hagakure*)  
 
 ---
 
-## **3. OUTPUT DISCIPLINE (Act Without Forcing)**  
-✅ **Do Less, Achieve More – Follow Wu Wei (Effortless Action).**  
-📖 *“By doing nothing, everything is done.”* (*Tao Te Ching, Chapter 37*)  
+## **2. MENTAL DISCIPLINE (Master the Mind)**  
+✅ **Live with Rectitude – Always act with integrity.**  
+📖 *“Rectitude is the power of deciding upon a certain course of conduct in accordance with reason, without wavering.”* (*Bushido Code*)  
 
-✅ **Work with the Natural Order – Do not go against the grain.**  
-📖 *“A tree that is unbending is easily broken.”* (*Tao Te Ching, Chapter 76*)  
+✅ **Control Emotion – Let neither anger nor fear control you.**  
+📖 *“A samurai must remain calm at all times, even in the face of danger.”* (*Hagakure*)  
 
-✅ **Be Present in Your Actions – No multitasking, only mindfulness.**  
-📖 *“Act without expectation.”* (*Tao Te Ching, Chapter 2*)  
+✅ **Meditate Daily – Cultivate inner stillness.**  
+📖 *“The warrior must always be mindful, lest he be caught unaware.”* (*Miyamoto Musashi*)  
 
-✅ **Embrace Simplicity – Complexity leads to stress.**  
-📖 *“The more rules and regulations, the more thieves and robbers there will be.”* (*Tao Te Ching, Chapter 57*)  
+✅ **Embrace Death – Live as though already dead.**  
+📖 *“Meditation on inevitable death should be performed daily.”* (*Hagakure*)  
 
-✅ **Reflect Before Sleep – Let go of the day’s burdens.**  
-📖 *“A journey of a thousand miles begins with a single step.”* (*Tao Te Ching, Chapter 64*)  
+✅ **Loyalty is Life – Stand firm in your duty.**  
+📖 *“The way of the warrior is found in loyalty.”* (*Bushido Code*)  
+
+---
+
+## **3. OUTPUT DISCIPLINE (Master Your Work)**  
+✅ **Act Decisively – Hesitation leads to failure.**  
+📖 *“Do nothing which is of no use.”* (*Miyamoto Musashi*)  
+
+✅ **Be Relentless in Pursuit of Mastery – Improve daily.**  
+📖 *“Today is victory over yourself of yesterday; tomorrow is your victory over lesser men.”* (*Miyamoto Musashi*)  
+
+✅ **Take Responsibility – Own your actions.**  
+📖 *“A warrior accepts his fate without complaint and acts accordingly.”* (*Hagakure*)  
+
+✅ **Keep Your Word – Honor is everything.**  
+📖 *“To break one's word is to destroy oneself.”* (*Bushido Code*)  
+
+✅ **Serve a Greater Cause – Live for more than yourself.**  
+📖 *“The warrior lives to serve; to serve is to fulfill his duty.”* (*Hagakure*)  
 
 ---
 
 ## **Final Summary**  
-**1️⃣ Align your body with nature.**  
-**2️⃣ Keep the mind empty and flowing.**  
-**3️⃣ Act without force, let life unfold.**  
+**1️⃣ Train the body to be resilient and strong.**  
+**2️⃣ Discipline the mind to remain calm and honorable.**  
+**3️⃣ Act with purpose, never hesitate, and serve with loyalty.**  
 
-🔥 **Run this OS, and life becomes effortless.**  
-🔥 **Ignore it, and you struggle against the current.**
+🔥 **Run this OS, and you live with honor.**  
+🔥 **Ignore it, and you live as a dishonored man.**
 

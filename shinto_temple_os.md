@@ -1,64 +1,74 @@
-# Taoism OS – Daily Execution Cheatsheet
+# Shinto OS – Daily Execution Cheatsheet (Temple & Folk Shinto)
 
-## **1. PHYSICAL DISCIPLINE (Align with Natural Flow)**  
-✅ **Wake Up Naturally – Rise with energy, not force.**  
-📖 *“Those who flow as life flows know they need no other force.”* (*Tao Te Ching, Chapter 8*)  
+## **1. PHYSICAL DISCIPLINE (Purity & Reverence)**  
+✅ **Start the Day with Purification – Cleanse yourself physically and mentally.**  
+📖 *“Misogi: To stand before the kami, one must first be pure.”* (*Shinto Teachings*)  
 
-✅ **Eat Simply and in Moderation – Balance is the way.**  
-📖 *“Fill your bowl to the brim and it will spill. Keep sharpening your knife and it will blunt.”* (*Tao Te Ching, Chapter 9*)  
+✅ **Maintain a Clean and Orderly Environment – Purity extends beyond the self.**  
+📖 *“A pure place invites the kami; a neglected space repels them.”* (*Shinto Tradition*)  
 
-✅ **Move with Purpose – Flow, stretch, walk, and breathe.**  
-📖 *“When you are content to be simply yourself and don’t compare or compete, everyone will respect you.”* (*Tao Te Ching, Chapter 8*)  
+✅ **Offer Food and Drink with Gratitude – Honor life’s blessings.**  
+📖 *“To eat is to receive a gift from the world; be thankful.”* (*Ritual Offerings to Kami*)  
 
-✅ **Rest When Needed – Overwork leads to disharmony.**  
-📖 *“Nature does not hurry, yet everything is accomplished.”* (*Tao Te Ching, Chapter 47*)  
+✅ **Walk with Reverence – Every place is sacred if you treat it as such.**  
+📖 *“The world is full of kami; show respect to all things.”* (*Kojiki*)  
 
-✅ **Live in Harmony with Your Body – Listen to its needs.**  
-📖 *“Be like water, which benefits all and contends with none.”* (*Tao Te Ching, Chapter 8*)  
+✅ **Visit a Shrine Regularly – Make time to reconnect with the divine.**  
+📖 *“The shrine is where heaven and earth meet; step forward with sincerity.”* (*Shinto Practices*)  
 
----
-
-## **2. MENTAL DISCIPLINE (Empty and Flow)**  
-✅ **Do Not Overthink – The mind is clear when still.**  
-📖 *“Stop thinking, and end your problems.”* (*Tao Te Ching, Chapter 20*)  
-
-✅ **Limit Attachments – Avoid clinging to things or ideas.**  
-📖 *“When I let go of what I am, I become what I might be.”* (*Tao Te Ching, Chapter 44*)  
-
-✅ **Spend Time in Silence – Insight comes when you are empty.**  
-📖 *“Do you have the patience to wait until your mud settles and the water is clear?”* (*Tao Te Ching, Chapter 15*)  
-
-✅ **Accept Change – Let go of resistance.**  
-📖 *“Life is a series of natural and spontaneous changes. Don’t resist them—that only creates sorrow.”* (*Tao Te Ching, Chapter 58*)  
-
-✅ **Trust the Process – Flow like the river, without forcing.**  
-📖 *“The best way to live is to be like water, always adapting yet always true to its nature.”* (*Tao Te Ching, Chapter 8*)  
+✅ **Honor Local Kami – Recognize spirits in your immediate surroundings.**  
+📖 *“Every village, every forest, and every home has its kami.”* (*Folk Shinto Beliefs*)  
 
 ---
 
-## **3. OUTPUT DISCIPLINE (Act Without Forcing)**  
-✅ **Do Less, Achieve More – Follow Wu Wei (Effortless Action).**  
-📖 *“By doing nothing, everything is done.”* (*Tao Te Ching, Chapter 37*)  
+## **2. MENTAL DISCIPLINE (Harmony & Gratitude)**  
+✅ **Cultivate Inner Harmony – Live with sincerity and balance.**  
+📖 *“Makoto (真): A pure heart aligns with the natural order.”* (*Shinto Ethics*)  
 
-✅ **Work with the Natural Order – Do not go against the grain.**  
-📖 *“A tree that is unbending is easily broken.”* (*Tao Te Ching, Chapter 76*)  
+✅ **Express Gratitude Daily – Acknowledge the unseen blessings.**  
+📖 *“To give thanks is to recognize the web of life that sustains us.”* (*Norito Prayers*)  
 
-✅ **Be Present in Your Actions – No multitasking, only mindfulness.**  
-📖 *“Act without expectation.”* (*Tao Te Ching, Chapter 2*)  
+✅ **Engage in Rituals with Mindfulness – Ceremony is a path to connection.**  
+📖 *“Rituals link us to the past, present, and the kami.”* (*Shinto Worship Guide*)  
 
-✅ **Embrace Simplicity – Complexity leads to stress.**  
-📖 *“The more rules and regulations, the more thieves and robbers there will be.”* (*Tao Te Ching, Chapter 57*)  
+✅ **Respect Nature – The land and all living things are sacred.**  
+📖 *“The mountain, the river, the tree—all have kami within.”* (*Shinto Cosmology*)  
 
-✅ **Reflect Before Sleep – Let go of the day’s burdens.**  
-📖 *“A journey of a thousand miles begins with a single step.”* (*Tao Te Ching, Chapter 64*)  
+✅ **Avoid Negativity and Impurity – Keep thoughts and words clean.**  
+📖 *“Kegare: Impurity clouds the soul; cleanse it through right action.”* (*Shinto Purification Teachings*)  
+
+✅ **Recognize Omens and Signs – The world communicates through subtle hints.**  
+📖 *“A bird’s flight, the rustle of leaves—kami speaks through nature.”* (*Folk Shinto Traditions*)  
+
+---
+
+## **3. OUTPUT DISCIPLINE (Action & Contribution)**  
+✅ **Perform Your Duties with Devotion – Work is an offering to the world.**  
+📖 *“To act with sincerity is to live in alignment with the kami.”* (*Shinto Ethics*)  
+
+✅ **Contribute to Community – Serve with humility and care.**  
+📖 *“The well-being of the village ensures the well-being of the self.”* (*Shinto Village Traditions*)  
+
+✅ **Honor Your Ancestors – Keep their spirit alive through remembrance.**  
+📖 *“The past lives in us; acknowledge those who came before.”* (*Rites for Ancestors*)  
+
+✅ **Engage in Seasonal Festivals – Align with the rhythms of nature.**  
+📖 *“Matsuri: Celebrations honor the cycles of life and kami’s presence.”* (*Shinto Seasonal Practices*)  
+
+✅ **Accept Life’s Transience – Flow with change rather than resist it.**  
+📖 *“Mono no aware: The beauty of life is in its impermanence.”* (*Shinto Aesthetic Philosophy*)  
+
+✅ **Practice Household Rituals – Small daily acts reinforce spiritual connection.**  
+📖 *“Lighting incense, offering sake, or placing fresh water pleases the kami.”* (*Folk Shinto Domestic Practices*)  
 
 ---
 
 ## **Final Summary**  
-**1️⃣ Align your body with nature.**  
-**2️⃣ Keep the mind empty and flowing.**  
-**3️⃣ Act without force, let life unfold.**  
+**1️⃣ Purify yourself and your surroundings to invite harmony.**  
+**2️⃣ Live with sincerity, gratitude, and respect for nature.**  
+**3️⃣ Act with devotion, serve the community, and honor ancestors.**  
+**4️⃣ Recognize the sacred in everyday life—nature, home, and omens.**  
 
-🔥 **Run this OS, and life becomes effortless.**  
-🔥 **Ignore it, and you struggle against the current.**
+🔥 **Run this OS, and life flows with natural order.**  
+🔥 **Ignore it, and you become disconnected from the world’s sacred rhythm.**
 
